@@ -1,0 +1,1 @@
+a collection of my submissions to codeguessing ([https://codeguessing.gay](https://codeguessing.gay))
